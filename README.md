@@ -1,1 +1,1 @@
-# in-Eorzea
+# in-Eorzea.github.io
